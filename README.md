@@ -5,3 +5,5 @@ https://medium.com/@jakecoreman/the-bs-of-modern-digestion-why-your-gut-is-screw
 https://bridge-pages.github.io/Gut-Go/
 
 https://medium.com/@branroy33/the-hidden-system-of-the-swollen-gut-a-gut-go-review-e12ae02bf80c
+
+https://medium.com/@branroy33/the-weight-we-carry-quietly-a-gut-go-review-0721ff628a29
