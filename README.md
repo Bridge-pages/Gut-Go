@@ -9,3 +9,5 @@ https://medium.com/@branroy33/the-hidden-system-of-the-swollen-gut-a-gut-go-revi
 https://medium.com/@branroy33/the-weight-we-carry-quietly-a-gut-go-review-0721ff628a29
 
 https://www.pinterest.com/CoretteJodion/gut-go/
+
+https://medium.com/@lmac29828/why-modern-diets-are-destroying-your-gut-and-how-gut-gos-ancient-japanese-formula-fights-back-f2309aa370cb
