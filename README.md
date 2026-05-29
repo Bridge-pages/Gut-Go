@@ -19,3 +19,5 @@ https://medium.com/@nonen6183/my-45-day-gut-go-journey-how-these-japanese-drops-
 https://medium.com/@nonen6183/struggling-with-bloating-after-40-this-gut-go-review-might-change-everything-fc1ffd50eaf0
 
 https://medium.com/@victorsamlucas/how-to-improve-gut-health-naturally-without-extreme-diets-or-expensive-supplements-8ddb02932823
+
+https://medium.com/@victorsamlucas/why-most-probiotics-fail-and-what-actually-works-for-gut-health-1e50fb440a60
