@@ -23,3 +23,5 @@ https://medium.com/@victorsamlucas/how-to-improve-gut-health-naturally-without-e
 https://medium.com/@victorsamlucas/why-most-probiotics-fail-and-what-actually-works-for-gut-health-1e50fb440a60
 
 https://gut-go.blogspot.com/
+
+https://medium.com/@larryrichard87/the-hidden-cause-of-chronic-constipation-9a944dc8fe38
