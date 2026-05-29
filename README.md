@@ -17,3 +17,5 @@ https://medium.com/@lmac29828/how-gut-go-helped-me-drop-14-pounds-of-stuck-waste
 https://medium.com/@nonen6183/my-45-day-gut-go-journey-how-these-japanese-drops-finally-fixed-my-years-of-constipation-8a75936bf8ca
 
 https://medium.com/@nonen6183/struggling-with-bloating-after-40-this-gut-go-review-might-change-everything-fc1ffd50eaf0
+
+https://medium.com/@victorsamlucas/how-to-improve-gut-health-naturally-without-extreme-diets-or-expensive-supplements-8ddb02932823
