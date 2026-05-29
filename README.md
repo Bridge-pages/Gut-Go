@@ -15,3 +15,5 @@ https://medium.com/@lmac29828/why-modern-diets-are-destroying-your-gut-and-how-g
 https://medium.com/@lmac29828/how-gut-go-helped-me-drop-14-pounds-of-stuck-waste-no-exercise-required-3200e9956c45
 
 https://medium.com/@nonen6183/my-45-day-gut-go-journey-how-these-japanese-drops-finally-fixed-my-years-of-constipation-8a75936bf8ca
+
+https://medium.com/@nonen6183/struggling-with-bloating-after-40-this-gut-go-review-might-change-everything-fc1ffd50eaf0
