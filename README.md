@@ -11,3 +11,5 @@ https://medium.com/@branroy33/the-weight-we-carry-quietly-a-gut-go-review-0721ff
 https://www.pinterest.com/CoretteJodion/gut-go/
 
 https://medium.com/@lmac29828/why-modern-diets-are-destroying-your-gut-and-how-gut-gos-ancient-japanese-formula-fights-back-f2309aa370cb
+
+https://medium.com/@lmac29828/how-gut-go-helped-me-drop-14-pounds-of-stuck-waste-no-exercise-required-3200e9956c45
