@@ -25,3 +25,5 @@ https://medium.com/@victorsamlucas/why-most-probiotics-fail-and-what-actually-wo
 https://gut-go.blogspot.com/
 
 https://medium.com/@larryrichard87/the-hidden-cause-of-chronic-constipation-9a944dc8fe38
+
+https://medium.com/@FrankMcCain/why-most-probiotics-fail-and-what-actually-works-instead-3e541a21bf5b
